@@ -16,3 +16,13 @@
 
                              
 "[@DirectorKris-Male](https://github.com/DirectorKris-Male) and I."
+
+
+
+
+
+
+
+
+
+The host of the lab roleplay 'Trinity Labs'!!! Totally go check out my awesome personal Githubs
