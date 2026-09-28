@@ -6,7 +6,7 @@ THIS IS MY ROLEPLAY GITHUB! NOTHING BELOW APPLIES TO THE PERSON I AM IRL
                                "This magical bullet can truly hit anyone, just like you say."
                         As the dimensional rifts opened, ██████ "Bullet" ██ was brought into this world.
          Using his previous experience with anomalous entities, he quickly rose through the ranks and became a site director.
-                          However, even a butterfly can not forget its past as a caterpillar. 
+                            However, even a butterfly can not forget its past as a caterpillar. 
 .
 
 
