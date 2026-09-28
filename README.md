@@ -5,7 +5,8 @@ THIS IS MY ROLEPLAY GITHUB! NOTHING BELOW APPLIES TO THE PERSON I AM IRL
 
                                            "Where do we end up when we save the world?"
 
-
+<p align="center"> 
+<img src="https://static.wikia.nocookie.net/lobotomycorp/images/0/0d/EGOGiftMagicBullet.png/revision/latest?cb=20181027045041" />
                                
                          As the dimensional rifts opened, ██████ "Bullet" ██ was brought into this world.
          Using his previous experience with anomalous entities, he quickly rose through the ranks and became a site director.
